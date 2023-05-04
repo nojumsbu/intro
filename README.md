@@ -7,12 +7,17 @@
 در اینجا میتونید به شبکه‌های اجتماعی ما دسترسی داشته باشید
 
 Telegram: https://t.me/nojumsbu
+
 Email: nojumsbu@gmail.com
+
 Instagram: https://instagram.com/nojumsbu?igshid=ZDdkNTZiNTM=
+
 YouTube: https://youtube.com/@nojumsbu
 
 
+
 برای عضویت در انجمن لطفا این فرم رو پر کنید:
+
 https://forms.gle/A1wxnxfcrH5vV85t5
 
 
