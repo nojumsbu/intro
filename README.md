@@ -20,9 +20,6 @@ YouTube: https://youtube.com/@nojumsbu
 
 https://forms.gle/A1wxnxfcrH5vV85t5
 
-ممنون میشیم اگه از غرفه‌ی ما در جشنواره حرکت خوشت اومده، از طریق لینک زیر به ما رای بدی:
-
-https://comments.sbu.ac.ir/quiz/load/uTV5IG7JRL
 
 
 
