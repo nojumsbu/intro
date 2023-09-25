@@ -18,8 +18,7 @@ YouTube: https://youtube.com/@nojumsbu
 
 برای عضویت در انجمن لطفا این فرم رو پر کنید:
 
-https://forms.gle/A1wxnxfcrH5vV85t5
-
+https://forms.gle/6Tj1PeRLSKiPjdVK8
 
 
 
